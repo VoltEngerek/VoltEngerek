@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VoltEngerek
-- 👀 I'm interested in Formula, electricity
+- 👀 I'm interested in Formula 1, electricity
 - 🌱I'm currently learning 3D modeling
 - 📫How to reach me Discord: voltengek
 - ⚡ Fun fact: He wears glasses
